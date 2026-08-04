@@ -23,12 +23,19 @@ I'm usually a patient person and try to be understanding, so there isn't much I 
 I think I'd say my main interest is drawing. I'm a self-taught artist, but because I often get writer's block, I don't do much of it right now. And about fandoms:
 
 .ᐟᝰ.ᐟ "The Freak Circus" (TFC, VN)
+
 .ᐟᝰ.ᐟ "You Make This House A Home" (YMTHAH, YN)
+
 .ᐟᝰ.ᐟ "Kingdom Of Marionettes" (KOM, YN)
+
 .ᐟᝰ.ᐟ "Mushroom Oasis" (MO, YN)
+
 .ᐟᝰ.ᐟ "To Eat A God" (TEAG, YN)
+
 .ᐟᝰ.ᐟ Pressure (Roblox)
+
 .ᐟᝰ.ᐟ Minecraft (Ig I can add it...)
+
 .ᐟᝰ.ᐟ Some horror/fantasy games ("MOLE", "Retail Hell", "No I'm not a Human", "Voices of the Void, Forest Ranger Services" and etc)
 
 
