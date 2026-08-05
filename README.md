@@ -35,7 +35,7 @@ I think I'd say my main interest is drawing. I'm a self-taught artist, but becau
 
 .ᐟᝰ.ᐟ Minecraft (Ig I can add it...)
 
-.ᐟᝰ.ᐟ Some horror/fantasy games ("MOLE", "Retail Hell", "No I'm not a Human", "Voices of the Void, Forest Ranger Services" and etc)
+.ᐟᝰ.ᐟ Some horror/fantasy games ("MOLE", "Retail Hell", "No I'm not a Human", "Voices of the Void", "Forest Ranger Services" and etc)
 
 
 <img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/15c6e0d5-b82c-4df0-86f5-b78645f41aa1" />
