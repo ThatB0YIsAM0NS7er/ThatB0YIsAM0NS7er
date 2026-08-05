@@ -19,7 +19,7 @@ I'm usually a patient person and try to be understanding, so there isn't much I 
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
 「✦Interests/Fandoms:
 
-I think I'd say my main interest is drawing. I'm a self-taught artist, but because I often get writer's block, I don't do much of it right now. And about fandoms:
+I think I'd say my main interest is drawing. I'm a self-taught artist, but because I often get artblock, I don't do much of it right now. And about fandoms:
 
 .ᐟᝰ.ᐟ "The Freak Circus" (TFC, VN)
 
