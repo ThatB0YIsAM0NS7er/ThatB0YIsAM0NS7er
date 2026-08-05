@@ -16,8 +16,7 @@ I have several names and you can use any of them, but the shortest and simplest 
 .ᐟᝰ.ᐟ Manipulators, abusers, and those who like to talk about ☠︎︎ just to get attention. We all go through tough times, and I understand that perfectly well. But if you’re using this to manipulate others, please don’t message me. This is a difficult topic for me.
 
 I'm usually a patient person and try to be understanding, so there isn't much I can add to my DNI sheet...
-
-
+<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
 「✦Interests/Fandoms:
 
 I think I'd say my main interest is drawing. I'm a self-taught artist, but because I often get writer's block, I don't do much of it right now. And about fandoms:
@@ -44,11 +43,35 @@ I think I'd say my main interest is drawing. I'm a self-taught artist, but becau
 
 「✦Kin List (cause why not?):
 
-.ᐟᝰ.ᐟ
+.ᐟᝰ.ᐟ Pierrot (TFC)
+
+.ᐟᝰ.ᐟ Sebastian Solace (Pressure)
+
+.ᐟᝰ.ᐟ Nulla (TEAG)
+
+.ᐟᝰ.ᐟ Naku (Arcticed)
+
+.ᐟᝰ.ᐟ The Knocker (MC mod)
+
+.ᐟᝰ.ᐟ Viktor Kaminsky (MOLE)
+<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
+<img width="2048" height="410" alt="image" src="https://github.com/user-attachments/assets/d8f66dad-1cbe-4a3d-96c9-7dd137664338" />
+I might add something else here later. Thanks for reading!
+
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/21619d7f-e446-479a-b8c7-146e0faa04a3" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/85a8871a-fc14-4f6e-8027-11acca23f814" />
+
+<img width="39" height="18" alt="image" src="https://github.com/user-attachments/assets/91e7187b-f750-4fe2-b678-96b3b3c1d888" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d59f8ea2-449d-4fe8-a721-722bbb335ca7" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/f17dce14-1466-4d79-80e6-f1408942ff29" />
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e0a92c47-d885-403f-b6d1-26aca546fdc7" />
 
 
-Links with separators:
+「✦Links with separators + graphics:
 https://www.tumblr.com/allegedlylonely/786005878524592129/nevermore-dividers-%CA%9A?source=share
 https://www.tumblr.com/cursed-carmine/822120274406309888/sparkle-divider?source=share
 https://www.tumblr.com/sisterlucifergraphics/821919248453664768/hello-can-we-ask-for-some-pierrot-tfc-themed?source=share
 https://www.tumblr.com/stxrzyz/818617938558042112/editfight-2026-attack-on?source=share
+https://www.tumblr.com/gr33n33/801815761142284288/monochromatic-stamps-and-blinkies?source=share
+https://www.tumblr.com/miceontheweb/818979083734171648/misc-buttons-i-like?source=share
+https://www.tumblr.com/shappyshag/820237541358845952/random-nerdy-devianart-stamps-and-blinkies-dump?source=share
