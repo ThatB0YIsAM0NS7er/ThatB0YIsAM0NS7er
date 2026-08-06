@@ -19,7 +19,7 @@ I'm usually a patient person and try to be understanding, so there isn't much I 
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
 「✦A little about me:
 
-I’m usually a calm and sociable person—not always talkative, but I’m a good listener (at least that’s what people have told me). Sometimes I can be a bit too energetic and eccentric, or, on the other hand, I go through periods of depression. I can listen to you if you want to vent, but keep in mind—no one can do this often or all the time, because people can get tired, and everyone has their own problems. I’m not trying to say that this is a bad thing (sorry if it sounded that way), but if you need to talk to someone ONLY to vent (to turn that person into your therapist), then please don’t even try to talk to me.
+I’m usually a calm and friendly person—not always talkative, but I’m a good listener (at least that’s what people have told me). Sometimes I can be a bit too energetic and eccentric, or, on the other hand, I go through periods of depression. I can listen to you if you want to vent, but keep in mind—no one can do this often or all the time, because people can get tired, and everyone has their own problems. I’m not trying to say that this is a bad thing (sorry if it sounded that way), but if you need to talk to someone ONLY to vent (to turn that person into your therapist), then please don’t even try to talk to me.
 
 I may have depression and autism, but I haven’t been officially diagnosed yet. This information probably isn’t necessary, but I’ll leave it here just in case.
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
