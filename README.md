@@ -23,7 +23,6 @@ I’m usually a calm and friendly person—not always talkative, but I’m a goo
 
 I may have depression and autism, but I haven’t been officially diagnosed yet. This information probably isn’t necessary, but I’ll leave it here just in case.
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
-Translated with DeepL.com (free version)
 「✦Interests/Fandoms:
 
 I think I'd say my main interest is drawing. I'm a self-taught artist, but because I often get artblock, I don't do much of it right now. And about fandoms:
