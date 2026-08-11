@@ -1,9 +1,3 @@
->"Свет мой, зеркальце, скажи: Сколько нужно жить во лжи? Чтобы, глядя в тебя я был лучшей версией себя"
->
->"My Light, mirror, tell me: How long must I live a lie? So that, when I look into you, I can be the best version of myself"
-
-|The Hatters – Зеркало (Mirror)|
-
 <img width="2048" height="410" alt="image" src="https://github.com/user-attachments/assets/d8f66dad-1cbe-4a3d-96c9-7dd137664338" />
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
 
