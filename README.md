@@ -16,6 +16,9 @@ I have several names and you can use any of them, but the shortest and simplest 
 .ᐟᝰ.ᐟ Manipulators, abusers, and those who like to talk about ☠︎︎ just to get attention. We all go through tough times, and I understand that perfectly well. But if you’re using this to manipulate others, please don’t message me. This is a difficult topic for me.
 
 I'm usually a patient person and try to be understanding, so there isn't much I can add to my DNI sheet...
+
+But I think I'll add this link here. I was told this is the basic DNI sheet, so it would be best if you read it. I didn't create the link myself.
+https://you-w3r3-h3r3.straw.page/
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
 「✦A little about me:
 
