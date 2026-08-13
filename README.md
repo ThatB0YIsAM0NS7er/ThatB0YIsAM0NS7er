@@ -31,13 +31,13 @@ I think I'd say my main interest is drawing. I'm a self-taught artist, but becau
 
 .ᐟᝰ.ᐟ "The Freak Circus" (TFC, VN)
 
-.ᐟᝰ.ᐟ "You Make This House A Home" (YMTHAH, YN)
+.ᐟᝰ.ᐟ "You Make This House A Home" (YMTHAH, VN)
 
-.ᐟᝰ.ᐟ "Kingdom Of Marionettes" (KOM, YN)
+.ᐟᝰ.ᐟ "Kingdom Of Marionettes" (KOM, VN)
 
 .ᐟᝰ.ᐟ "Mushroom Oasis" (MO, YN)
 
-.ᐟᝰ.ᐟ "To Eat A God" (TEAG, YN)
+.ᐟᝰ.ᐟ "To Eat A God" (TEAG, VN)
 
 .ᐟᝰ.ᐟ Pressure (Roblox)
 
