@@ -51,7 +51,7 @@ I think I'd say my main interest is drawing. I'm a self-taught artist, but becau
 
 「✦Kin List (cause why not?):
 
-.ᐟᝰ.ᐟ Pierrot (TFC)
+.ᐟᝰ.ᐟ Pierrot (TFC) / Harlequin (TFC. Not sure about this one, but why not...)
 
 .ᐟᝰ.ᐟ Sebastian Solace (Pressure)
 
