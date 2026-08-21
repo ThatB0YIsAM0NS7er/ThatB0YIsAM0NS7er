@@ -1,4 +1,5 @@
-<img width="2048" height="410" alt="image" src="https://github.com/user-attachments/assets/d8f66dad-1cbe-4a3d-96c9-7dd137664338" />
+<img width="2048" height="205" alt="image" src="https://github.com/user-attachments/assets/db9c3e4b-e1e2-48f3-a87c-9ea687285369" />
+
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
 
 Welcome!
@@ -63,7 +64,7 @@ I think I'd say my main interest is drawing. I'm a self-taught artist, but becau
 
 .ᐟᝰ.ᐟ Viktor Kaminsky (MOLE)
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
-<img width="2048" height="410" alt="image" src="https://github.com/user-attachments/assets/d8f66dad-1cbe-4a3d-96c9-7dd137664338" />
+<img width="2048" height="205" alt="image" src="https://github.com/user-attachments/assets/db9c3e4b-e1e2-48f3-a87c-9ea687285369" />
 I might add something else here later. Thanks for reading!
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/21619d7f-e446-479a-b8c7-146e0faa04a3" />
@@ -76,7 +77,8 @@ I might add something else here later. Thanks for reading!
 
 
 「✦Links with separators + graphics:
-https://www.tumblr.com/allegedlylonely/786005878524592129/nevermore-dividers-%CA%9A?source=share
+
+https://www.tumblr.com/somebitchprobably-graphicdump/813049356278218752/liminal-spaces-backrooms-dividers-free-to-use?source=share
 https://www.tumblr.com/cursed-carmine/822120274406309888/sparkle-divider?source=share
 https://www.tumblr.com/sisterlucifergraphics/821919248453664768/hello-can-we-ask-for-some-pierrot-tfc-themed?source=share
 https://www.tumblr.com/stxrzyz/818617938558042112/editfight-2026-attack-on?source=share
