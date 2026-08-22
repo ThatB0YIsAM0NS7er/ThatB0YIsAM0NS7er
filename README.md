@@ -16,6 +16,8 @@ I have several names and you can use any of them, but the shortest and simplest 
 
 .ᐟᝰ.ᐟ Manipulators, abusers, and those who like to talk about ☠︎︎ just to get attention. We all go through tough times, and I understand that perfectly well. But if you’re using this to manipulate others, please don’t message me. This is a difficult topic for me.
 
+.ᐟᝰ.ᐟ Haters of the “GreenApple” ship (Pierrot x Harlequin, from The Freak Circus). Everyone has their own tastes when it comes to ships and such, and I'm not asking you to love GreenApple, but PLEASE, if you hate it, just don't talk to me. It's my comfort ship, and I can talk/roleplay a lot about it.
+
 I'm usually a patient person and try to be understanding, so there isn't much I can add to my DNI sheet...
 <img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/15c6e0d5-b82c-4df0-86f5-b78645f41aa1" />
 「✦A little about me:
