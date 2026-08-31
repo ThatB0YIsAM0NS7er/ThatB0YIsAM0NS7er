@@ -45,6 +45,7 @@ I think I'd say my main interest is drawing. I'm a self-taught artist, but becau
 .ᐟᝰ.ᐟ Minecraft (Ig I can add it...)
 
 .ᐟᝰ.ᐟ Some horror/fantasy games ("Feed The Pit", "MOLE", "Retail Hell", "No I'm not a Human", "Voices of the Void", "Forest Ranger Services" and etc)
+.ᐟᝰ.ᐟ Cookie Run Kingdom (I've been playing this game for a couple of years, but my English is bad, and I mostly skip the plot because I'm too lazy to translate. So, I don't know much about the plot, but I'm happy to discuss it if you want.)
 
 
 <img width="2048" height="154" alt="image" src="https://github.com/user-attachments/assets/15c6e0d5-b82c-4df0-86f5-b78645f41aa1" />
@@ -61,6 +62,8 @@ I think I'd say my main interest is drawing. I'm a self-taught artist, but becau
 .ᐟᝰ.ᐟ Naku (Arcticed)
 
 .ᐟᝰ.ᐟ The Knocker (MC mod)
+
+.ᐟᝰ.ᐟSilent Salt Cookie (CRK)
 
 .ᐟᝰ.ᐟ Viktor Kaminsky (MOLE)
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
