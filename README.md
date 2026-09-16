@@ -1,3 +1,17 @@
+«Я боль твою, как боль свою
+
+Нутром душой воспринимаю
+
+Гори мечтой, пылай во мгле
+
+Вокруг тебя все словно тени
+
+Ты цефеида в вышине
+
+Влекущий свет в беззвёздном небе»
+
+— BIIOSSOM-Как Боль Свою 
+
 <img width="2048" height="205" alt="image" src="https://github.com/user-attachments/assets/db9c3e4b-e1e2-48f3-a87c-9ea687285369" />
 
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
