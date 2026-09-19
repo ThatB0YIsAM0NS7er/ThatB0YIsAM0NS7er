@@ -12,7 +12,9 @@ I have several names and you can use any of them, but the shortest and simplest 
 
 .ᐟᝰ.ᐟ Transphobes, homophobes, zoophiles, and the like... I think you get my point.
 
-.ᐟᝰ.ᐟ People who start conversations with the goal of finding a partner. I'm single and don't plan on getting into a relationship anytime soon.
+.ᐟᝰ.ᐟ People who start conversations with the goal of finding a partner. I'm single and don't plan on getting into a relationship anytime soon. Btw, speaking of that. I want to point out that I might flirt playfully, but mostly with friends (and only if I know they don’t mind that kind of joke, ofc). If my jokes make you doubt whether I’m seriously flirting with you or something else, please be straightforward and let me know! I’m mostly just joking and don’t mean anything serious. And I’m clarifying this because there have been situations where people took my playful flirting seriously. So, yeah. Please ask right away rather than keeping it to yourself.
+
+Translated with DeepL.com (free version)
 
 .ᐟᝰ.ᐟ Manipulators, abusers, and those who like to talk about ☠︎︎ just to get attention. We all go through tough times, and I understand that perfectly well. But if you’re using this to manipulate others, please don’t message me. This is a difficult topic for me.
 
