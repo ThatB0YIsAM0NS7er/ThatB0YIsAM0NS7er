@@ -64,7 +64,7 @@ I think I'd say my main interest is drawing. I'm a self-taught artist, but becau
 
 .ᐟᝰ.ᐟ The Knocker (MC mod)
 
-.ᐟᝰ.ᐟSilent Salt Cookie (CRK)
+.ᐟᝰ.ᐟ Silent Salt Cookie (CRK)
 
 .ᐟᝰ.ᐟ Viktor Kaminsky (MOLE)
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/a1de9999-f834-461f-a70b-e1a4f32330f5" />
